@@ -1,4 +1,4 @@
-# 
+# advanced Adobe Photoshop para PC executor é o melhor Adobe Photoshop para PC executor com edição de nós e scripting. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
